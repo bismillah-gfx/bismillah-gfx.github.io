@@ -1,1 +1,0 @@
-# bismillah-gfx.github.io
